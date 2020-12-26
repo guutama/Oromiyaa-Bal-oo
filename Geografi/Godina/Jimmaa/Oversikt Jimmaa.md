@@ -1,0 +1,4 @@
+
+# Magaalota bebbeekkamoo: 
+*   Jimmaa
+*   Aggaaroo
